@@ -1,0 +1,2 @@
+# inuyasha
+Inuyasha appreciation page
